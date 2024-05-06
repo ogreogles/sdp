@@ -1,1 +1,1 @@
-# viridian.github.io
+https://ogreogles.github.io/sdp/
